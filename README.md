@@ -1,1 +1,1 @@
-This is a website for Creature Comforts Records, copyright 2025.
+This is a website for Kate Koenig Music, copyright 2025.
